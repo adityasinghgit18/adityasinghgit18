@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @adityasinghgit18
 - 👀 I’m interested in doing everything
-- 🌱 I’m currently learnin
+- 🌱 I’m currently learning
 - 📫 How to reach me just mail at adityasingh718@gmail.com
   
 
